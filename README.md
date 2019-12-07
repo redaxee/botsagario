@@ -1,5 +1,7 @@
-# Alexis-New-Actualizacion
+RedAxee
+MR-JACK
+_Bocahkurus
 
-Discord: [AA]Alexis_X#5882
+menggunakan bots agario menggunakan Linux
 
-suscribe: https://www.youtube.com/channel/UCh5X1IjfvpbL7NBbTkoD58g?view_as=subscriber
+suscribe: https://www.youtube.com/redaxee
